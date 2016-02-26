@@ -7,6 +7,9 @@
 ##SNAP:
  ![alt tag](http://i65.tinypic.com/1zf4cpf.png)
 
+##I don't praise myself, but if somebody does, you are WELCOME! :)
+![alt tag](http://i63.tinypic.com/w82d5i.png)
+
 ##Contest Brief
 Here are some designs that are similar to what I'm looking for. However, I don't want any colors other than black and white, I don't want any background textures or photos, ignore the navigation bars, since this is only a one page website, and ignore any visual moving effects. I don't need that. Keep in mind that these are just examples, and are NOT exactly what I'm looking for. The main thing that I want you to focus on is the sections. The designers of these sights made each topic of the page into a different section, using background colors, images, and headings. Here are the designs:
 
