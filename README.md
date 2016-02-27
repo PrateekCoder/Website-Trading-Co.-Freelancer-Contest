@@ -4,8 +4,13 @@
 ##Link to my Submission:
   http://prateekcoder.github.io/Website-Trading-Co.-Freelancer-Contest/
   
+##Feedback by Contest Holder:
+ ![alt](http://s8.postimg.org/v5jilg3gl/feedback2.png)  
+  
 ##SNAP:
  ![alt tag](http://i65.tinypic.com/1zf4cpf.png)
+ 
+
 
 ##I don't praise myself, but if somebody does, you are WELCOME! :)
 ![alt tag](http://i63.tinypic.com/w82d5i.png)
